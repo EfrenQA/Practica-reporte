@@ -2,7 +2,7 @@
 ### Información general
 Mi nombre es Efren David Quiroz Ayala, nací el 29 de Agosto de 1999 y tengo 26 años. Actualmente vivo en Jiutepec, Morelos. Estudie una carrera como tecnico en mecatrónica en el CETis 12, posteriormente tome estudios en ingeniería Industrial en la Facultad de Ciencias Químicas e Ingeniería en la Universidad del Estado de Morelos.
 ### Hobbies
-Los hobbiesa los que me gusta dedicarles tiempo son:
+Los hobbies a los que me gusta dedicarles tiempo son:
 1. Jugar video juegos
 2. Pasear en Bicicleta
 3. Jugar con mis mascotas
